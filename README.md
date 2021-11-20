@@ -1,1 +1,0 @@
-# shelinadolor-sdadprog
